@@ -1,0 +1,1 @@
+# kondukt-r-l-nn-utdanning
